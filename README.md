@@ -10,10 +10,10 @@ Três faculdades trancadas - pela necessidade de trabalhar bastante para se mant
 
 - Profundo conhecedor de imformatica e seus "Truquizinhos" 
 Pacote Office 365 e demais;
-Power BI - técnicas de analise de dados e aplicação prática 
-Vendas 
-Análises de vendas
-Tecnica de vendas
+Power BI - técnicas de analise de dados e aplicação prática -
+Vendas -
+Análises de vendas -
+Tecnica de vendas-
 E mais...
 
 - Sou apaixonado por tecnologia e entendo de tudo um pouco, tendo me aventurado como programador em um curso da Digital House, que tá trancado - atualmente não trabalho na área.
