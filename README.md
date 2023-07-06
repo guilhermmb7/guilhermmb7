@@ -6,7 +6,7 @@
 Remanescente da área de vendas, tenho 29 anos, e alguns vários anos de vasta experiência na área citada. Já tendo atuado em cargos de liderança por mais de 3 anos. E também na área de logística. 
 
 - Alguns fatos sobre mim:
-Três faculdades trancadas - pela necessidade de trabalhar bastante para se manter, nesse mercado que é volátil, "mas a próxima dará certo, hehe";
+Três faculdades trancadas - pela necessidade de trabalhar bastante para se manter, nesse mercado que é volátil, "mas a próxima vai dar certo, hehe";
 
 - Profundo conhecedor de imformatica e seus "Truquizinhos" 
 Pacote Office 365 e demais;
