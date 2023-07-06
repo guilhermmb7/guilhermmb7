@@ -1,4 +1,4 @@
-- 👋 HI, I'AM GUILHERME HENRIQUE
+- 👋 Olá, me chamo Guilherme Henrique
 - 🌱 Atualmente etou Estudado JAVASCRIPT, HTML, CSS, BI, MySQL e BANCO DE DADOS
 - 📫 Como de achar: araujo2filh@gmail.com
 
