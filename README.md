@@ -13,10 +13,10 @@ Pacote Office 365 e demais;
 Power BI - técnicas de analise de dados e aplicação prática -
 Vendas -
 Análises de vendas -
-Tecnica de vendas-
+Tecnica de vendas
 E mais...
 
-- Sou apaixonado por tecnologia e entendo de tudo um pouco, tendo me aventurado como programador em um curso da Digital House, que tá trancado - atualmente não trabalho na área.
+- Sou apaixonado por tecnologia e entendo de tudo um pouco, tendo me aventurado como programador em um curso da Digital House, que tá trancado - atualmente não trabalho na área. -
 "O que ainda não desisti. Imagino que um profissional deva conhecer de tudo um pouco para ser completo".
 
 - Sempre fui sosinho, mas atualmente trouxe minha irmã pra morar comigo, e ela trabalhando, diminuio bastante essa necessidade absurda de trabalhar o tempo todo pra manter casa (aluguel, transporte). Fiz acordo e saí do meu emprego, e atualmente, por esse motivo, dei uma pausa na carreira pra colocar alguas coisas em dia. Estudar bastante e rumar uma carreira sólida.
