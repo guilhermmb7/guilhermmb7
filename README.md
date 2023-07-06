@@ -1,6 +1,6 @@
 - 👋 HI, I'AM GUILHERME HENRIQUE
-- 🌱 I AM CURRENTLY LEARNING JAVASCRIPT, HTML, CSS AND BI 
-- 📫 HOW TO REACH ME: araujo2filh@gmail.com
+- 🌱 Atualmente etou Estudado JAVASCRIPT, HTML, CSS, BI, MySQL e BANCO DE DADOS
+- 📫 Como de achar: araujo2filh@gmail.com
 
 -------------------------------------------------------------------------------------------------------------------------------------------
 Remanescente da área de vendas, tenho 29 anos, e alguns vários anos de vasta experiência na área citada. Já tendo atuado em cargos de liderança por mais de 3 anos. E também na área de logística. 
